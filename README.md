@@ -1,2 +1,2 @@
 # High-Altitude-Balloon-SCL
-GitHub will be updated Oct. 23rd
+GitHub will be updated Soon 
